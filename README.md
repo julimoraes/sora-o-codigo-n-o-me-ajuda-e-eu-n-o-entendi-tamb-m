@@ -1,0 +1,1 @@
+# sora-o-codigo-n-o-me-ajuda-e-eu-n-o-entendi-tamb-m
